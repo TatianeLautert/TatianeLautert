@@ -21,4 +21,4 @@ When I'm not managing backlogs or mapping out project timelines, you can usually
 * 👨‍👩‍👧‍👧 **Spending quality time** with my family and enjoying life here in Curitiba!
 
 Let's connect! 
-[LinkedIn](https://www.linkedin.com/in/tatianelautert) ｜ tatianelautert@gmail.com
+[LinkedIn](https://www.linkedin.com/in/tatianelautert)
