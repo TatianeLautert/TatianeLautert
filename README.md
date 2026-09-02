@@ -1,6 +1,6 @@
 ## Hi there, I'm Tatiane Lautert! 👋
 
-I have been working in Tech for over 18 years, in multiple roles including Technical Product Manager, Product Owner, IT Project Manager, Developer and Product Support Analyst. My career has been focused on contributing to high-impact technology solutions across Banking, Financial, Payment, and Smart Metering domains. 
+I have been working in Tech for over 18 years, in multiple roles including Technical Product Manager, Product Owner, IT Project Manager, Developer and Production Support Analyst. My career has been focused on contributing to high-impact technology solutions across Banking, Financial, Payment, and Smart Metering domains. 
 
 I love bridging the gap between complex business requirements and technical execution, leading cross-functional global teams, and driving digital product delivery. 
 
